@@ -1,3 +1,3 @@
 # تطبيق إقرأ و ارتقي
 
-رابط نسخة APK للتست : https://drive.google.com/file/d/1hu0-cX5ler2KNXDWCa4LJPdpQC4y-R4v/view?usp=sharing
+رابط نسخة APK للتست : https://drive.google.com/file/d/1yROFh3S60Nra_U62ZBEfkVx0cg8X9ecm/view?usp=sharing
